@@ -1,2 +1,1 @@
 # WallpaperOTD
-amd
